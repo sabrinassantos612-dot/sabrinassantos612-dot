@@ -1,5 +1,5 @@
 
-👋 Olá, eu sou a Sabrina ! 
+👏 Olá, eu sou a Sabrina ! 
 
 🎓 Estudante de Desenvolvimento de Sistemas
 
